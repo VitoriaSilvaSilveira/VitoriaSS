@@ -7,4 +7,4 @@ para me desenvolver na linguagem JavaScript,
  Você pode entrar em contato comigo através do contato e e-mail abaixo:
  
  vitoriassilvasilveira688@gmail.com
- (015)99811- 0524.
+ (015)99811- 0524. :)
